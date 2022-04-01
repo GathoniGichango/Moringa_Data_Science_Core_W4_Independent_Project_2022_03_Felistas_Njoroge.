@@ -1,1 +1,0 @@
-# Moringa_Data_Science_Core_W4_Independent_Project_2022_03_Felistas_Njoroge.
